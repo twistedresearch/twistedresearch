@@ -1,4 +1,1 @@
-![𝅄 ㅤׂ ೃ❀࿔ Che&#39;nya ₊   ˙ 𓈒⠀✧](https://github.com/user-attachments/assets/6f1365b8-3d09-48fe-9d26-9fda98b206ee)
-
-# そう思いますか？ここの基準で言えば、私は他の誰よりもおかしいわけではないと思いますよ。
-
+![DEEP DIVE poster design](https://github.com/user-attachments/assets/9e902f65-2f82-485c-b566-f6402ac37859)
