@@ -1,2 +1,2 @@
-<img width="736" height="736" alt="dyle timesly widget  ))  f2u-Picsart-BackgroundRemover" src="https://github.com/user-attachments/assets/cd11b32b-000c-4eac-8467-674f78a9e26c" />
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=35&duration=800&pause=1000&color=27886F&width=762&height=124&lines=%E3%80%8C%E3%81%93%E3%81%AE%E4%B8%96%E3%81%A7%E6%AE%8B%E3%81%A3%E3%81%A6%E3%81%84%E3%82%8B%E3%81%AE%E3%81%AF%E3%80%81%E7%A7%81%E3%81%9F%E3%81%A1%E4%BA%8C%E4%BA%BA%E3%81%A0%E3%81%91%E3%81%A0%E3%80%82%E3%80%8D)](https://git.io/typing-svg)
+<img width="735" height="427" alt="_ (17)__fliter--sea__channel--all__mode--darken" src="https://github.com/user-attachments/assets/a04fdd49-65a3-4883-8548-89fdbc924167" />
